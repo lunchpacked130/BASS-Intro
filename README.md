@@ -23,7 +23,7 @@ That’s the magic soup I'm after!
 
 ## How It Works
 
-# Script/Dialogue:
+### Script/Dialogue:
 I have hastily re-written the script for the introduction as a sort of baseline, I'm happy with some parts, but many changes are needes.
 
 So if you have an idea/suggestion/alteration/replacement/etc to the script, please create an issue marked "Script suggestion for scene## - by [your username]. 
@@ -32,7 +32,7 @@ So if you have an idea/suggestion/alteration/replacement/etc to the script, plea
 Let's focus on starting with finalizing the script so we can lock it down for voiceover work.
 
 
-# Artworks:
+### Artworks:
  
 • Check the Artwork Overview and Issues tab and find a unassigned panel you *don't* want to recreate, or one that feels more intimidating to do.
 
@@ -49,7 +49,7 @@ use the Issue thread to keep us updated.
 > scans and digital drawings of big artwork must be presented in a minimum of 1440p or upwards
 > (The size of the artwork must fit 1-1 (without scaling/resizing etc) if imported to an image/video that has a minimum resolution of 2560 pixels wide and 1440 pixels tall, larger resolutions is fine.)
 
-# Voiceover:
+### Voiceover:
 
 > [!WARNING]
 > Scripts/ Voice lines can be subject to change until script is locked down.
@@ -88,7 +88,7 @@ These are not set in stone however, if you think you can make it work anyway, or
 
 
 ## Which Panel / Voiceover Should You Pick?
-# Find the one that fits you best:
+### Find the one that fits you best:
 
 ● You’re really good at drawing or voice acting
 <details>
@@ -97,14 +97,16 @@ These are not set in stone however, if you think you can make it work anyway, or
 </details>
 
 
-You’re great at drawing some [Specific things] but can’t draw backgrounds, characters, or you csn voice act but can’t nail a certain voice or struggle accents
+● You’re great at drawing some [Specific things] but can’t draw backgrounds, characters, or you csn voice act but can’t nail a certain voice or struggle accents
 <details>
 - Fantastic! Tackle the backgrounds, characters, or that tricky accent you’ve been avoiding. </details>
 
-You can’t draw at all, struggle with English, or think your voice sounds awful.
+● You can’t draw at all, struggle with English, or think your voice sounds awful.
 <details>
 - *Please* draw the front cover or a full-page artwork.  
 - *Please* voice the main lead.  </details>
 
 
 any Questions, create an issue and tag me, I'll prefer answering questions here so if others join and wonder the same, they can see the answer
+
+oh and have fun, It's mandatory! 😜
