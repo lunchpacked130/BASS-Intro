@@ -38,6 +38,15 @@ Legend:
 [ ] - Profit!
 </details>
 
+Shortcuts
+<details>
+ 
+ [Original BASS References](https://github.com/lunchpacked130/BASS-Intro/tree/main/Artworks/References)
+
+[Scripts](https://github.com/lunchpacked130/BASS-Intro/tree/main/Scripts)
+ 
+</details>
+
 ## Project Overview
 
 This project aims to recreate every artwork panel from the original Beneath a Steel Sky comic and voiceover from the game intro.
