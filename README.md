@@ -1,5 +1,43 @@
 # Fan-made reproduction of Beneath a Steel Sky game introduction / Comic book.
 
+Brief workload overview
+<details>
+Legend:
+[ ] = Not yet started
+[O] = Started/Ongoing
+[X] = Completed 
+
+1
+[ ] - Finalize script/story
+
+2
+[ ] - Finalize any changes additions
+
+3
+[ ] - Asset Creation (Images/Voiceover)
+
+4
+[ ] - Voting over any duplicate artwork/voiceovers,start any fixes / redraws / retakes
+
+5
+[ ] - Create a First Draft video to see if anything doesnt work (like suddenly a insanely detailed photorealistic rendition of Soupey 😅)
+
+6
+[ ] - last round of fixing/redrawing/retaking if needed
+
+7
+[ ] - Polishing
+
+8
+[ ] - Release
+
+9
+[ ] - ? ¿ ?
+
+10
+[ ] - Profit!
+</details>
+
 ## Project Overview
 
 This project aims to recreate every artwork panel from the original Beneath a Steel Sky comic and voiceover from the game intro.
