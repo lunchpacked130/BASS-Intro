@@ -43,7 +43,9 @@ Shortcuts
  
  [Original BASS References](https://github.com/lunchpacked130/BASS-Intro/tree/main/Artworks/References)
 
-[Scripts](https://github.com/lunchpacked130/BASS-Intro/tree/main/Scripts)
+[Scripts folder](https://github.com/lunchpacked130/BASS-Intro/tree/main/Scripts)
+
+[Full Script](https://github.com/lunchpacked130/BASS-Intro/blob/main/Scripts/Bass%20intro%20script%20-%20rewritten%20dialogue.txt)
  
 </details>
 
