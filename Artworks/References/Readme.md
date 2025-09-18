@@ -1,8 +1,8 @@
 ### Original BASS References.
 
 ## Game intro logos
-![Virgin Interactive Entertainment](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/virglogo.jpg "Virgin")
-![Revolution Software Logo](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/revologo.jpg "Revolution")
+![Virgin Interactive Entertainment](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/VirgLogo.jpg "Virgin")
+![Revolution Software Logo](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/RevoLogo.jpg "Revolution")
 
 ## Comic book
 ![Page1](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/Bass-Pg1.png "Page1")
