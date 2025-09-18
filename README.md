@@ -107,6 +107,8 @@ These are not set in stone however, if you think you can make it work anyway, or
 - *Please* voice the main lead.  </details>
 
 
-any Questions, create an issue and tag me, I'll prefer answering questions here so if others join and wonder the same, they can see the answer
+any Questions, create an issue and tag me, I'll prefer answering questions here so if others join and wonder the same, they can see the answer.
+
+there might be changes to this and other pages as it's  just something i whipped up as a starting point
 
 oh and have fun, It's mandatory! 😜
