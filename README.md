@@ -106,9 +106,10 @@ These are not set in stone however, if you think you can make it work anyway, or
 - *Please* draw the front cover or a full-page artwork.  
 - *Please* voice the main lead.  </details>
 
+# Anything else:
 
-any Questions, create an issue and tag me, I'll prefer answering questions here so if others join and wonder the same, they can see the answer.
+If you hve any Questions, create an issue and tag me, I'll prefer answering questions here so if others join and wonder the same, they can see the answer.
 
-there might be changes to this and other pages as it's  just something i whipped up as a starting point
+there might be changes to this and other pages as it's  just something i whipped up as a starting point.. early days
 
 oh and have fun, It's mandatory! 😜
