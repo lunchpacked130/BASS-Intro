@@ -1,4 +1,8 @@
-### Original BASS References.
+# Original BASS References.
+
+
+
+
 
 ## Game intro logos
 ![Virgin Interactive Entertainment](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/VirgLogo.jpg "Virgin")
