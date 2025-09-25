@@ -3,12 +3,11 @@
 
 ## 🤏✂️ Shortcuts
 <Details>
-[CONTRIBUTION RULES]()
-[STYLE, CHARACTERS AND LORE]()
-[ORIGINAL REFERENCE MATERIAL]()
+[CONTRIBUTION RULES](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#-contribution-rules)
+[STYLE, CHARACTERS AND LORE](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#style-characterplace-names-and-lore)
+[ORIGINAL REFERENCE MATERIAL](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/Readme.md)
 [CHAMELEON_CAT'S ARTWORK DRAWING GUIDE]()
-[DISCUSSION FORUM]()
-  [CONTACT ME]()
+[DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
 </Details>
 
 # 🤔 What is this all about? 
