@@ -2,13 +2,13 @@
 ## *Beneath a Steel Sky* Intro
 
 ## 🤏✂️ Shortcuts
-<Details>
+
 [CONTRIBUTION RULES](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#-contribution-rules)
 [STYLE, CHARACTERS AND LORE](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#style-characterplace-names-and-lore)
 [ORIGINAL REFERENCE MATERIAL](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/Readme.md)
 [CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.png)
 [DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
-</Details>
+
 
 # 🤔 What is this all about? 
 This is a collaborative, open-source effort to reimagine the gritty, dystopian opening sequence through **artwork**, **voice acting**, and **creative reinterpretation**. Whether you’re a seasoned illustrator, a voice actor with a home mic, or someone who’s never drawn a line or recorded a word — you belong here!
