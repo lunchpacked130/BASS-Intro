@@ -6,7 +6,7 @@
 [CONTRIBUTION RULES](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#-contribution-rules)
 [STYLE, CHARACTERS AND LORE](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#style-characterplace-names-and-lore)
 [ORIGINAL REFERENCE MATERIAL](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/Readme.md)
-[CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.png)
+[CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.md)
 [DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
 
 
@@ -26,7 +26,7 @@ This project is **especially** for people who think they’re “not creative,�
 >[!TIP]
 >While we welcome any skill level or lack thereof, don't feel intimidated or think something like *"I could never do anything half as good as that anyway, so why even try?"*, give it your best shot anyway, just have fun with it.
 
-If you need a little extra help/guidance, The absolutely amazing Chameleon_Cat has ***very*** kindly provided us with some amazing artwork guidelines for how the panels are structured to help with drawing, [AVAILABLE HERE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/p1_BASS_transparent.png)
+If you need a little extra help/guidance, The absolutely amazing Chameleon_Cat has ***very*** kindly provided us with some amazing artwork guidelines for how the panels are structured to help with drawing, [AVAILABLE HERE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.md)
 
 
 
