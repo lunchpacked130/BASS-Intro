@@ -13,7 +13,7 @@
 
 [ORIGINAL INTRO AUDIO](https://lunchpacked130.github.io/BASS-Intro/Artworks/References/audio.html)
 
-[CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.md)
+[CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/ArtGuides/Readme.md)
 
 [DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
 
