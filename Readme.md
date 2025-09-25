@@ -4,10 +4,15 @@
 ## 🤏✂️ Shortcuts
 
 [CONTRIBUTION RULES](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#-contribution-rules)
+
 [STYLE, CHARACTERS AND LORE](https://github.com/lunchpacked130/BASS-Intro?tab=readme-ov-file#style-characterplace-names-and-lore)
+
 [ORIGINAL REFERENCE MATERIAL](https://github.com/lunchpacked130/BASS-Intro/blob/main/Artworks/References/Readme.md)
+
 [CHAMELEON_CAT'S ARTWORK DRAWING GUIDE](https://raw.githubusercontent.com/lunchpacked130/BASS-Intro/refs/heads/main/Artworks/ArtGuides/readme.md)
+
 [DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
+
 
 
 # 🤔 What is this all about? 
