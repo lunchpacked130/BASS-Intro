@@ -1,4 +1,5 @@
 # SQH Community Re-Creation: 
+(https://github.com/lunchpacked130/BASS-Intro/raw/refs/heads/main/BaSSLogo.gif)
 ## *Beneath a Steel Sky* Intro
 
 ## 🤏✂️ Shortcuts
