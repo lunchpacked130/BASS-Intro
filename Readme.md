@@ -1,7 +1,9 @@
 # SQH Community Re-Creation:
-## Of the comicbook and introduction to:
+## Of the comicbook and introduction to **Beneath a Steel Sky**
 ![Of the comicbook and introduction to](https://github.com/lunchpacked130/BASS-Intro/raw/refs/heads/main/BaSSLogo.gif)
-## **Beneath a Steel Sky**
+
+[Project Trailer (YouTube)](https://youtube.com/shorts/L142q_g_Cz0?si=59o-u-AvLGhh4Uue)
+
 
 ## 🤏✂️ Shortcuts
 
@@ -19,6 +21,7 @@
 
 [DISCUSSION FORUM](https://github.com/lunchpacked130/BASS-Intro/discussions)
 
+[UPDATES, INTERACTION AND HELP THREAD (Discord)](https://discord.com/channels/316940416396296193/1423066960106881024)
 
 
 
