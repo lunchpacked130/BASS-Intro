@@ -157,7 +157,7 @@ Then...
  <"HUT! HUT! HUT! HUT! HUT! HUT!">
 ---
 
-## Scene 12 - 
+## Scene 12 - Wichser Arrives
 
 ### Scene Description:
 Wichser strutting infront of copter door with two armed guards standing protectively next to Wichser.
@@ -165,32 +165,33 @@ Wichser strutting infront of copter door with two armed guards standing protecti
 ### Wichser - trying to sound in charge.
 Whoever is in... <Random voice: "It's whoMever">
 *cough or something* 
-WhoMever is in charge of this...  come forward, NOW! ...or i will have to... Take off my sunglasses!"
+WhoMever is in charge of this...  dump, come forward, NOW! 
+...or i will have to... Take off my sunglasses!"
 <shocked gasps>
 
-
 ### Tampax - Narration
-Only a fool would have argued with that grammar...
+Only a fool would have argued with such a serious threat...
 
 ---
 
-## Scene 13
+## Scene 13 - Old Fart emerges.
 
 ### Scene Description:
 Old Fart in background emerging,Wichser on copter landing pointing at Old Fart,troops advancing on Old Fart
 
-### Old Fart
-I am somehow the leader of these people.. we are peacefu (interrupted)
+### Old Fart - reluctant an humble 
+I am somehow the leader of these people.. we are a peaceful community, scratching a modest living off the Gash, taking only what we need.
 
-### Wichser
-(Interrupting) Bring that old fart here!
+### Wichser - still trying to sound in control, maybe even over doing it!
+(To Old Fart) Be quiet when you're adressing me! 
+(To Henchman) Bring that old geezer here!
 
-### Henchman1
+### Henchman
 At once Commander Wichser.
 
 ---
 
-## Scene 14
+## Scene 14 - 
 
 ### Scene Description:
 Wichser holding Old Fart threateningly
@@ -484,5 +485,27 @@ Thank you for flying with Villair, the Villains choice
 *seatbelt click sound* 
 Maybe I'd get some answers now..
 [Cut to black and silence]
-That is... as long as i don't get stuck in some fair and balanced retrospective...
+[That is... as long as i don't get stuck in some fair and balanced retrospective...]
 <Crashing copter sound>
+
+
+# Additional Lines, Reactions
+To save on having to do extra recordings later
+
+## Wichser
+
+### Lines: 
+● (angry snap) What was that?
+
+### Reactions:
+● NOW!
+
+## EXTRA SINGLE LINES/SOUNDS FOR ANYONE TO RECREATE OR REINTERPRET, HAVE FUN.
+
+### Lines:
+● 
+
+### Sounds:
+● [Wilhelm Scream](https://www.myinstants.com/en/instant/wilhelm-scream/)
+● [Howie Scream](https://www.myinstants.com/en/instant/gut-wrench-scream/)
+● 
