@@ -1,0 +1,582 @@
+## Scene 1 - Eye see.
+
+### Scene Description:
+Wide/banner image; Old Fart's eyes closeup
+
+### Pampers - Narration.
+The old fart was trying to hallucinate the future, looking for pictures in the campfire having consumed [and subsequently vomited up again] his third bucket of fermented ayahuasca,...
+
+### Old Fart - Dramatically unsettled.
+Oh, I see evil... evil created deep inside a point and click computer adventure game, deep under some metallic heavens...
+
+<"Eugh, not this again, I'm going to bed">
+
+---
+
+## Scene 2 - Who's got marshmallows?
+
+### Scene Description:
+Old Fart and fire with hallucinations.
+
+### Old Fart - Dramatically unsettledness increases.
+I see it growing under a dome of chrome,stealing asses... no wait, it's stealing asse**T**s!
+
+<mumbled chuckles>
+
+---
+
+## Scene 3 - Fired up.
+
+### Scene Description:
+Back of Old Fart facing fire
+
+### Old Fart - very Dramatically unsettled 
+And now.... Oh, now the evil spreads! 
+It's grabby fingers are roaming outside across the Gash, reaching towards [tits... no wait, it's much much worse, it's hairy palms are reaching for **th**is very Place!
+<sarcastic/uninterested gasps>
+---
+
+## Scene 4 - Pampers butting in.
+
+### Scene Description:
+Pampers looking at Old Fart
+
+### Pampers - Narration
+I had seen the old fart hallucinate high of his rocker over a 100 times, but since he got so pissy when nobody took him seriously, I humored him. 
+After all he'd been like some creepy uncle to me, who taught me to make drugs out of fermenting my own dung, how to kill those icky spiders and how to survive in the Gash without my Chameleon_Cat plushy.
+
+### Pampers - Spoken - Not really that bothered or interested.
+*Sigh* And what does this evil want here THIS time?
+<shut up and sit down Pampers, or he'll...">
+
+---
+
+## Scene 5 - J'accuse.
+
+### Scene Description:
+Ground view looking up,Old Fart pointing at Pampers, Soupey making a racket
+
+### Old Fart
+Oh my genetically unrelated dingle-berry, who I found when I was tripping balls on fermented turds in the Gash and thought was a mystic talking sand-goblin in disguise who would grant me a wish if I took care of it, but when I sobered up, turned out to be just a human child who Mrs. Old Fart demanded we adopt...
+<Awww>
+I fear...
+I fear the evil wants YOU!
+<"See? what did I tell you!">
+
+### Pampers - Narration
+That was when SOUPEY started making noises...
+
+<computer/robot/digital noises>
+
+### Soupey
+My sensors, they tingle with zesty tomato delight! I am receiving an incoming audio soup, uhm, audio source.
+
+---
+
+## Scene 6 - What is that sound?
+
+### Scene Description:
+Old Fart scared/freaked out,Pampers worried
+
+<"fappa fappa faPPA FAPPA FAPPA FAPPA FAPPA FAPPA FAPPA">
+### Old Fart
+The evil!
+The evil is nearly here!
+
+### Pampers - Narration
+Sounded more to me like the old fart when he's filling his fermentation jars, than something that's *truly* evil, like the creators of Stair Quest...
+
+---
+
+## Scene 7 - Shoot people first, ask about the guy we must find alive second!
+
+### Scene Description:
+Pampers jumping away from row of bullets fired from copter in background sky, Old Fart, Soupey and villagers running.
+
+### Pampers - Narration
+But then, all hell let loose.
+
+<screaming, chaos, etc>
+
+### Old Fart - Loud/shouting
+Run Pampers, RUN! hide from the sweaty hands of evil!
+
+---
+
+## Scene 8 - Soupey springs a leak
+
+### Scene Description:
+Backside of Pampers in background, line of bullets hitting Soupey
+
+<bullets hitting the ground>
+
+### Soupey
+Why was I programmed to experience fear.. <Clang> OOWW! and feel pain? 
+Pampers, you cowardly meatbag, HELP!
+<electrical sparking>
+
+---
+
+## Scene 9 - save me, Oldie-Man Pampersobi
+
+### Scene Description:
+Pampers helps a "grateful" Soupey
+<bullets/copter background sounds>
+
+### Soupey
+Thanks for running away and leaving me behind, Pampers, you soiled diaper brain! 
+My next shell better be Foster,<"Error message/beep/chime> I mean faster, and made by someone actually competent.. that means **NOT** by you Pampers...
+
+### Pampers - Narration
+He was only a Random PCB I found after digging through some extra spicy sewage.. That turned out to have some sort of sarcastic and megalomaniac computer brain prototype on it, but, well, I did kinda enjoy his salty bisque sarcasm.
+
+---
+
+## Scene 10 - Hiding away
+
+### Scene Description:
+Pampers and Soupey hiding in shadows in foreground, copter in upper right quadrant
+
+### Pampers - Narration
+Then, as suddenly as it started, The shooting stopped and the copter landed.
+I assumed they weren't here to buy some fine leather trousers...
+
+---
+
+## Scene 11 - ScumSoft? copter lands.
+
+### Scene Description:
+Sequel police? in full armor carrying weapons, running out from copter in background
+
+### Pampers - Narration
+There was a moment's silence as 
+Then...
+ <"HUT! HUT! HUT! HUT! HUT! HUT!">
+---
+
+## Scene 12 - Wichser Arrives
+
+### Scene Description:
+Wichser strutting infront of copter door with two armed guards standing protectively next to Wichser.
+
+### Wichser - trying to sound in charge.
+Whoever is in... <Random voice: "It's whoMever">
+*cough or something* 
+WhoMever is in charge of this...  dump, come forward, NOW! you don't want me to... Take off my sunglasses!"
+<shocked gasps>
+
+### Pampers - Narration
+Only a fool would have argued with such a serious threat...
+
+---
+
+## Scene 13 - Old Fart emerges.
+
+### Scene Description:
+Old Fart in background emerging,Wichser on copter landing pointing at Old Fart,troops advancing on Old Fart
+
+### Old Fart - reluctant and humble 
+I am somehow the leader of these people.. we are a peaceful community, scratching a modest living off the Gash, taking only what we need.
+
+### Wichser - still trying to sound in control, maybe even over doing it!
+Bring that old geezer here!
+
+### Henchman
+At once Commander Wichser.
+
+---
+
+## Scene 14 - Holding a fart
+
+### Scene Description:
+Wichser holding Old Fart threateningly
+
+### Wichser
+We are looking for.. someone...
+Someone who doesn't belong here, who wasn't born in this hell hole, or "Gash" as you call it, someone who came from the city as a child,
+...Okay... so *maybe* we're a *little* bit late, but you see, Frank at the office managed to send in the wrong form, and wouldn't you know it when we finally got the right form, it had been replaced by a new version... (trailing off)
+
+---
+
+## Scene 15 - The Symbol
+
+### Scene Description:
+Pampers and Soupey hiding in shadows in foreground,Wichser holding Old Fart threateningly in front of copter side showing big symbol in the background
+
+### Wichser 
+...And we had ourselves a jolly little giggle..
+so even if bureaucracy moves slow, it never, *ever* stops!.. anyway, where was i?
+Oh yes, the unbelonged one... 
+We want to take him home again. (Said in a fake sappy voice)
+
+### Pampers - Narration
+I tried to remember where I'd seen that symbol before, That's when the flashback montage happened...
+
+---
+
+## Scene 16 - Copter crash Flashback
+
+### Scene Description:
+crashed and and burning copter with symbol, kid Pampers sitting next to it with teddy,3 figures in background + closeup of symbol placed next to the crashed copter symbol.
+
+### Pampers - Narration
+It was the day the old fart found me.
+The day of the crash, the day I got to sit in the pilot seat and steer the copter, the day I learned that copters can talk! I'll always remember those words...
+
+<"WHOOP-WHOOP! TERRAIN! PULL UP!">
+
+---
+
+## Scene 17 - The first meeting.
+
+### Scene Description:
+Pampers holding a Chameleon_Cat plushy, three figures on height in background, middle figure is Middle-aged Fart (Old Fart)
+
+### Middle-aged Fart (Old Fart)
+OY! Sand goblin.. You can't park there, mate!
+<two others chuckles>
+I'll just assume you understand and speak the same language as me, so what do they call you squirt?
+
+### Young Pampers - Spoken
+Piss-off kid! ...But my *name* is Harry.
+
+---
+
+## Scene 18 - A welcoming, i guess.
+
+### Scene Description:
+closeup of younger Old Fart holding out hand
+
+### Middle-aged Fart
+Hah. Welcome to the Gash, Harvey!
+
+### Young Pampers - Spoken
+Harry...
+
+### Middle-aged Fart
+Larry!
+
+### Young Pampers - Spoken
+Harry.
+
+### Middle-aged Fart
+Carey.
+
+### Young Pampers - Spoken
+Harry!
+
+### Middle-aged Fart
+Gary!
+
+### Young Pampers - Spoken
+HARRY!
+
+### Middle-aged Fart
+Henry
+
+### Young Pampers - Spoken
+HARRY!
+
+### Middle-aged Fart
+Horace!
+
+### Young Pampers - Spoken
+H! A! R! R! R... uhm.. Y! HARRY!
+
+### Middle-aged Fart
+J, E, N, N, Y!
+
+
+<"Hey, *cough* I'm still alive in here.. If anyone has a stick *cough* or something, they could easily press the *cough* emergency release button on the outside. *cough*">
+
+<"Anyone? It's getting toasty in here...">
+
+
+---
+
+## Scene 19 - Grave vibes
+
+### Scene Description:
+monochrome, silhouette of three villagers/hunters, young Pampers, Graves
+
+### Young Pampers - Narration
+As he put band-aids on my boo-boos, the Middle-aged fart had vaguely explained that there was nothing he could do to save the other survivors, and I knew there was no way I'd get back to the city.. 
+I remember reading about the last rescue operation being celebrated for only taking *just* under 34 years 7 months and 23 days until the request was processed in the system and they successfully rescued 7 skeletons.
+
+---
+
+## Scene 20 - Arriving "home"
+
+### Scene Description:
+Middle-aged Fart holding hand of young Pampers and two figures in background arriving at village, village scene and people in foreground
+
+<mumble> <whisper>
+
+### Young Pampers - Narration 
+The others was sceptical at first, but in time, they started to treat me like a distant cousin.
+
+---
+
+## Scene 21 - Growing up in the Gash
+
+### Scene Description:
+Backside of Ageing Fart teaching older Pampers to hunt, spear thrown at kangaroos in background
+
+### Pampers - Narration
+I quickly learned how to scratch out a living in the Wasteland they called The Gash..
+
+---
+
+## Scene 22 - It's a shitty job...
+
+### Scene Description:
+nightscene,shadowy figures searching the dump, copter in background dumping more trash
+
+### Pampers - Narration
+And digging through the city's combined garbage and sewage dump for anything useful, and some mythical treasure the Old Fart had seen during one of his psychedelic benders, called "Elless-Ellfor".
+That's also where I found Soupey's PCB.
+
+---
+
+## Scene 23 - New Talents
+
+### Scene Description:
+Pampers completing a soupcan robot shell for Soupey, villagers and Old Fart in background, Old Fart holding and looking at something and getting a bright idea
+
+### Pampers - Narration
+As the years passed, I forgot my life in the city, and discovered new talents, like using a metal pipe, whistling <bad whistling>, and hot-gluing some stuff together to make a shell for Soupey.
+
+### Old Fart
+Hah!
+
+### Soupey
+I am.. ALIVE!
+Greetings inferior meatbags, You may call me Soupey, or suffer the consequences.
+
+---
+
+## Scene 24 - And a new name
+
+### Scene Description:
+Old Fart holding a Pampers label and pointing like he's posing for a cheesy commercial
+
+### Pampers - Narration
+And I was provided with a second name.
+
+### Old Fart
+This random piece of trash i just found is what we'll call you, now that you've come of age at your 34th birthday.
+I found you, protected you, and taught you to be more absorbent, so that makes you Jerry Pampers.
+
+### Pampers
+Harry...
+
+### Old Fart
+Whatever...
+
+---
+
+## Scene 25 - Oh yeah, the present
+
+### Scene Description:
+Pampers in shadows pocketing Soupey's circuitboard, Wichser shaking up Old Fart, and two guys carrying a big giftwrapped bomb labeled "NOT A BOMB" in the background
+
+### Wichser - Annoyed 
+...and you don't even have the correct form for anything!
+Now, give us the the guy who escaped us over 20 years ago, or we'll shoot everyone.. again, starting with you, you weirdly nameless old git..
+
+### Pampers - Narration
+The old fart had been right.. for once.. after making drugged out, hallucinatory predictions every week since he found me.
+
+---
+
+## Scene 26 - Here i am
+
+### Scene Description:
+backside of Pampers emerging towards Old Fart, Wichser and henchmen standing in background
+
+### Pampers - Narration
+Maybe this wasn't the smartest plan It was obviously me they wanted, but maybe I could...
+
+### Old Fart
+Noo.. You *can't* quicksave during a cutscene, don't let the evil take you, run away!
+
+### Henchman
+The RNG scan-o-meter confirminates that it's him commander Wichser.
+
+---
+
+## Scene 27 - Plan B, Get captured.
+
+### Scene Description:
+closeup of Wichser with shitgrin
+
+### Pampers - Narration
+Evil had come to the Gash allright, just as the old man predicted about 5-10 minutes ago..
+
+### Wichser
+Size him!
+<"*cough* Seize">
+oh.. right... SEIZE HIM!
+
+---
+
+## Scene 28 - Take-Away
+
+### Scene Description:
+Pampers being led by Wichser up copter landing,villagers looking helplessly on
+
+### Pampers - Narration
+But had the old fart seen *why* it wanted me?
+And why did he predict this basically at the exact same time as it happened? and what *was* his name, anyway?
+
+---
+
+## Scene 29 - Welcome to VillAir®, the Villains choice 
+
+### Scene Description:
+copter flying towards front, campfire visible in distant background
+
+### Pampers - Narration
+I guess it was too late to ask him now...
+
+### Henchman
+We are now 69 Edmarks away and safely outside the Eradica-Tron's vaporisation zone, Commander Wichser.
+
+### Wichser
+Excellent... Explodinate!!
+
+---
+
+## Scene 30 - Pop goes the village
+
+### Scene Description:
+BIG explosion, small copter flying away
+
+### Pampers - Narration
+Now it *REALLY* was too late to ask him...
+
+---
+
+## Scene 31 - What a jerk
+
+### Scene Description:
+Henchman holding back Pampers, who is trying to attack Wichser, who in turn is looking back at him with an annoyed expression.
+
+### Pampers - Spoken
+Why you knee-grating...
+
+### Wichser
+Shut up when you threaten me!
+
+<SMACK>
+---
+
+## Scene 32 - Wait Quest
+
+### Scene Description:
+Closeup of Pampers with a swollen black eye and bloody/runny nose
+
+### Pampers - Narration
+I was unable to discuss my objections to vaporising the village, and since there wasn't any tea or coffee, or even an in-flight magazine,  all I could do was wait.
+Waiting just like the Old Fart taught me, when the batteries to my gameboy had to recharge, 
+Wait, Stay focused and be ready...
+
+---
+
+## Scene 33 - Being Vigilant 
+
+### Scene Description:
+city view,copter flying
+
+### Pampers - Narration
+*snoring*
+*abruptly waking up* Huh, wha.. where?
+*clear throat*
+The sun was already shining bright when we approached the city. 
+
+### Wichser
+Land at the Security Quadrant Headquarters.
+
+### Pampers - Narration
+A brightness the villagers saw up close and personal as they and everything around them was vaporised.
+
+---
+
+## Scene 34 - the roosterhole
+
+### Scene Description:
+Double panel:
+
+First panel: looking straight into cockpit windows from outside, Wichser to the left, a pilot to the right, and Pampers on the floor behind them in middle, Wichser reading a book (Villany for dummies!)
+
+Second panel: same as the first panel, but everyone has a worried look on their face, book and other stuff flying around, shaking.
+
+### Pampers - Narration
+Now the Old Fart and the others were reduced to nothing more than a neatly filled checkbox on one of Wichsers many forms.
+
+### Henchman
+Affirmative commander whiskers.. err Commander Wichser. 
+Approaching Security Quadrant Headquarters now, actimavating the BOEING descent system now.
+
+### Pampers - Narration
+But what was I supposed to... Why did they... 
+Wait, what did he say that landing system was called...(interrupted)
+
+### Wichser - shocked
+BOEING??
+
+### Henchman 
+An ancient manufacturer of something called air planes commander Wichser,[*] but that's not important right now, the BOEING descent system... it's taken over all controls!
+
+[*] Wichser: "what's an air plane?" Henchman: an air plane is a tool for planing air"  and so on and so on, (can be a fun place to add cameos or something?)
+---
+
+## Scene 35 - Black Hawk-Thua Down
+
+### Scene Description:
+Copter plummeting down towards city, camera zooms veeery slowly in
+<annoying alarm/beeping/warning>
+
+### Pilot - low, calm, half mumbling, mic close to mouth / audio clipping [I'll adapt the audio volume so it is about the same volume as other voices)
+<crackle>
+This is the captain speaking, as you can see out your windows if you tilt your heads, it's a lovely day, smoggy, with only the occasional acid drizzle.
+We will soon be landing.. somewhere on the ground, the outside temperature is a crisp 14 degrees Celsius, or 57 Fahrenheit, or 287 point 2 Kelvin, or 420 point 69 Varmeme units...
+
+(Sudden stop with freezeframe, hammy voice over saying something like: 
+"Is this the end of Harry Pampers? Will Soupey ever fulfil his hard-coded wish to take over the world? To find out, tune in... ...RIGHT NOW!
+...continues playing from Freezeframe)
+
+...or 1337 point 47 on the Keith scale.
+
+we *might* experience some *minor* turbulence so please return to your seats, fold up that flimsy little tray, fasten your seatbelts and pray to whatever deity you believe in, and those you don't believe in.
+Smoke'em if you got them, and thank you for choosing to fly with VillAir®, the Villains choice.
+
+### Pampers - Narration
+<seatbelt click sound>
+Maybe I'd get some answers now..
+[Cut to black and silence]
+[That is... as long as I don't get stuck in Customs.. or worse, in some kind of fair and balanced retrospective...]
+<Crashing copter sound>
+
+
+
+
+# Additional Lines, Reactions
+To save on having to do extra recordings later
+
+## Wichser
+
+### Lines & Reactions:
+● (angry snap) What was that?
+● (Annoyed) NOW!
+● Who said that? Show yourself so i can have you shot!
+
+## EXTRA SINGLE LINES/SOUNDS FOR ANYONE TO RECREATE OR REINTERPRET, HAVE FUN.
+
+### Lines:
+
+● 
+
+### Sounds:
+● [Wilhelm Scream](https://www.myinstants.com/en/instant/wilhelm-scream/)
+● [Howie Scream](https://www.myinstants.com/en/instant/gut-wrench-scream/)
