@@ -1,4 +1,4 @@
-## Scene 1 - Eye see.
+# Scene 1 - Eye see.
 
 ### Scene Description:
 Wide/banner image; Old Fart's eyes closeup
@@ -9,7 +9,7 @@ The old fart was trying to hallucinate the future, looking for pictures in the c
 ### Old Fart - Dramatically unsettled.
 Oh, I see evil... evil created deep inside a point and click computer adventure game, deep under some metallic heavens...
 
-<"Eugh, not this again, I'm going to bed">
+■"Eugh, not this again, I'm going to bed"
 
 ---
 
@@ -21,7 +21,7 @@ Old Fart and fire with hallucinations.
 ### Old Fart - Dramatically unsettledness increases.
 I see it growing under a dome of chrome,stealing asses... no wait, it's stealing asse**T**s!
 
-<mumbled chuckles>
+◆mumbled chuckles
 
 ---
 
@@ -30,10 +30,11 @@ I see it growing under a dome of chrome,stealing asses... no wait, it's stealing
 ### Scene Description:
 Back of Old Fart facing fire
 
-### Old Fart - very Dramatically unsettled 
+### Old Fart - very Dramatically unsettled.
 And now.... Oh, now the evil spreads! 
-It's grabby fingers are roaming outside across the Gash, reaching towards [tits... no wait, it's much much worse, it's hairy palms are reaching for **th**is very Place!
-<sarcastic/uninterested gasps>
+It's grabby fingers are roaming outside across the Gash, reaching towards (tits... no wait, it's much much worse, it's hairy palms are reaching for) **th**is very Place!
+◆sarcastic/uninterested gasps
+
 ---
 
 ## Scene 4 - Pampers butting in.
@@ -47,7 +48,7 @@ After all he'd been like some creepy uncle to me, who taught me to make drugs ou
 
 ### Pampers - Spoken - Not really that bothered or interested.
 *Sigh* And what does this evil want here THIS time?
-<shut up and sit down Pampers, or he'll...">
+■shut up and sit down Pampers, or he'll..."
 
 ---
 
@@ -58,15 +59,15 @@ Ground view looking up,Old Fart pointing at Pampers, Soupey making a racket
 
 ### Old Fart
 Oh my genetically unrelated dingle-berry, who I found when I was tripping balls on fermented turds in the Gash and thought was a mystic talking sand-goblin in disguise who would grant me a wish if I took care of it, but when I sobered up, turned out to be just a human child who Mrs. Old Fart demanded we adopt...
-<Awww>
+◆Awww
 I fear...
 I fear the evil wants YOU!
-<"See? what did I tell you!">
+■"See? what did I tell you!"
 
 ### Pampers - Narration
 That was when SOUPEY started making noises...
 
-<computer/robot/digital noises>
+◆computer/robot/digital noises
 
 ### Soupey
 My sensors, they tingle with zesty tomato delight! I am receiving an incoming audio soup, uhm, audio source.
@@ -78,7 +79,7 @@ My sensors, they tingle with zesty tomato delight! I am receiving an incoming au
 ### Scene Description:
 Old Fart scared/freaked out,Pampers worried
 
-<"fappa fappa faPPA FAPPA FAPPA FAPPA FAPPA FAPPA FAPPA">
+◆"fappa fappa faPPA FAPPA FAPPA FAPPA FAPPA FAPPA FAPPA"
 ### Old Fart
 The evil!
 The evil is nearly here!
@@ -96,7 +97,7 @@ Pampers jumping away from row of bullets fired from copter in background sky, Ol
 ### Pampers - Narration
 But then, all hell let loose.
 
-<screaming, chaos, etc>
+◆screaming, chaos, etc
 
 ### Old Fart - Loud/shouting
 Run Pampers, RUN! hide from the sweaty hands of evil!
@@ -108,12 +109,13 @@ Run Pampers, RUN! hide from the sweaty hands of evil!
 ### Scene Description:
 Backside of Pampers in background, line of bullets hitting Soupey
 
-<bullets hitting the ground>
+◆bullets hitting the ground
 
 ### Soupey
-Why was I programmed to experience fear.. <Clang> OOWW! and feel pain? 
+Why was I programmed to experience fear.. ◆Clang 
+OOWW! and feel pain? 
 Pampers, you cowardly meatbag, HELP!
-<electrical sparking>
+◆electrical sparking
 
 ---
 
@@ -121,7 +123,7 @@ Pampers, you cowardly meatbag, HELP!
 
 ### Scene Description:
 Pampers helps a "grateful" Soupey
-<bullets/copter background sounds>
+◆bullets/copter background sounds
 
 ### Soupey
 Thanks for running away and leaving me behind, Pampers, you soiled diaper brain! 
@@ -151,7 +153,9 @@ Sequel police? in full armor carrying weapons, running out from copter in backgr
 ### Pampers - Narration
 There was a moment's silence as 
 Then...
- <"HUT! HUT! HUT! HUT! HUT! HUT!">
+
+■"HUT! HUT! HUT! HUT! HUT! HUT!"
+ 
 ---
 
 ## Scene 12 - Wichser Arrives
@@ -160,10 +164,10 @@ Then...
 Wichser strutting infront of copter door with two armed guards standing protectively next to Wichser.
 
 ### Wichser - trying to sound in charge.
-Whoever is in... <Random voice: "It's whoMever">
-*cough or something* 
+Whoever is in... ■"It's whoMever"
+(cough or something)
 WhoMever is in charge of this...  dump, come forward, NOW! you don't want me to... Take off my sunglasses!"
-<shocked gasps>
+◆shocked gasps
 
 ### Pampers - Narration
 Only a fool would have argued with such a serious threat...
@@ -223,7 +227,7 @@ crashed and and burning copter with symbol, kid Pampers sitting next to it with 
 It was the day the old fart found me.
 The day of the crash, the day I got to sit in the pilot seat and steer the copter, the day I learned that copters can talk! I'll always remember those words...
 
-<"WHOOP-WHOOP! TERRAIN! PULL UP!">
+■"WHOOP-WHOOP! TERRAIN! PULL UP!"
 
 ---
 
@@ -234,7 +238,7 @@ Pampers holding a Chameleon_Cat plushy, three figures on height in background, m
 
 ### Middle-aged Fart (Old Fart)
 OY! Sand goblin.. You can't park there, mate!
-<two others chuckles>
+◆two others chuckles
 I'll just assume you understand and speak the same language as me, so what do they call you squirt?
 
 ### Young Pampers - Spoken
@@ -287,10 +291,9 @@ H! A! R! R! R... uhm.. Y! HARRY!
 J, E, N, N, Y!
 
 
-<"Hey, *cough* I'm still alive in here.. If anyone has a stick *cough* or something, they could easily press the *cough* emergency release button on the outside. *cough*">
+■"Hey, *cough* I'm still alive in here.. If anyone has a stick *cough* or something, they could easily press the *cough* emergency release button on the outside. *cough*"
 
-<"Anyone? It's getting toasty in here...">
-
+■"Anyone? It's getting toasty in here..."
 
 ---
 
@@ -310,7 +313,8 @@ I remember reading about the last rescue operation being celebrated for only tak
 ### Scene Description:
 Middle-aged Fart holding hand of young Pampers and two figures in background arriving at village, village scene and people in foreground
 
-<mumble> <whisper>
+◆mumble
+◆whisper
 
 ### Young Pampers - Narration 
 The others was sceptical at first, but in time, they started to treat me like a distant cousin.
@@ -344,7 +348,7 @@ That's also where I found Soupey's PCB.
 Pampers completing a soupcan robot shell for Soupey, villagers and Old Fart in background, Old Fart holding and looking at something and getting a bright idea
 
 ### Pampers - Narration
-As the years passed, I forgot my life in the city, and discovered new talents, like using a metal pipe, whistling <bad whistling>, and hot-gluing some stuff together to make a shell for Soupey.
+As the years passed, I forgot my life in the city, and discovered new talents, like using a metal pipe, whistling ◆bad whistling, and hot-gluing some stuff together to make a shell for Soupey.
 
 ### Old Fart
 Hah!
@@ -415,7 +419,7 @@ Evil had come to the Gash allright, just as the old man predicted about 5-10 min
 
 ### Wichser
 Size him!
-<"*cough* Seize">
+■"*cough* Seize.."
 oh.. right... SEIZE HIM!
 
 ---
@@ -468,7 +472,8 @@ Why you knee-grating...
 ### Wichser
 Shut up when you threaten me!
 
-<SMACK>
+◆SMACK
+
 ---
 
 ## Scene 32 - Wait Quest
@@ -528,7 +533,10 @@ BOEING??
 ### Henchman 
 An ancient manufacturer of something called air planes commander Wichser,[*] but that's not important right now, the BOEING descent system... it's taken over all controls!
 
+■"WHOOP-WHOOP! TERRAIN! PULL UP!"
+
 [*] Wichser: "what's an air plane?" Henchman: an air plane is a tool for planing air"  and so on and so on, (can be a fun place to add cameos or something?)
+
 ---
 
 ## Scene 35 - Black Hawk-Thua Down
@@ -538,7 +546,7 @@ Copter plummeting down towards city, camera zooms veeery slowly in
 <annoying alarm/beeping/warning>
 
 ### Pilot - low, calm, half mumbling, mic close to mouth / audio clipping [I'll adapt the audio volume so it is about the same volume as other voices)
-<crackle>
+◆crackle
 This is the captain speaking, as you can see out your windows if you tilt your heads, it's a lovely day, smoggy, with only the occasional acid drizzle.
 We will soon be landing.. somewhere on the ground, the outside temperature is a crisp 14 degrees Celsius, or 57 Fahrenheit, or 287 point 2 Kelvin, or 420 point 69 Varmeme units...
 
@@ -552,14 +560,13 @@ we *might* experience some *minor* turbulence so please return to your seats, fo
 Smoke'em if you got them, and thank you for choosing to fly with VillAir®, the Villains choice.
 
 ### Pampers - Narration
-<seatbelt click sound>
+◆seatbelt click sound
 Maybe I'd get some answers now..
-[Cut to black and silence]
-[That is... as long as I don't get stuck in Customs.. or worse, in some kind of fair and balanced retrospective...]
-<Crashing copter sound>
+(Cut to black and silence)
+That is... as long as I don't get stuck in Customs.. or worse, in some kind of fair and balanced retrospective...
+◆Crashing copter sound
 
-
-
+---
 
 # Additional Lines, Reactions
 To save on having to do extra recordings later
@@ -574,9 +581,10 @@ To save on having to do extra recordings later
 ## EXTRA SINGLE LINES/SOUNDS FOR ANYONE TO RECREATE OR REINTERPRET, HAVE FUN.
 
 ### Lines:
-
-● 
+any lines beginning with ■
+any henchman lines
 
 ### Sounds:
-● [Wilhelm Scream](https://www.myinstants.com/en/instant/wilhelm-scream/)
-● [Howie Scream](https://www.myinstants.com/en/instant/gut-wrench-scream/)
+any sound beginning with ◆
+◆ [Wilhelm Scream](https://www.myinstants.com/en/instant/wilhelm-scream/)
+◆ [Howie Scream](https://www.myinstants.com/en/instant/gut-wrench-scream/)
