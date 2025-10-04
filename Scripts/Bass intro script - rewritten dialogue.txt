@@ -183,8 +183,7 @@ Old Fart in background emerging,Wichser on copter landing pointing at Old Fart,t
 I am somehow the leader of these people.. we are a peaceful community, scratching a modest living off the Gash, taking only what we need.
 
 ### Wichser - still trying to sound in control, maybe even over doing it!
-(To Old Fart) Be quiet when you're adressing me! 
-(To Henchman) Bring that old geezer here!
+Bring that old geezer here!
 
 ### Henchman
 At once Commander Wichser.
@@ -232,240 +231,304 @@ The day of the crash, the day i got to sit in the pilot seat and steer the copte
 
 ---
 
-## Scene 17 - 
+## Scene 17 - The first meeting
 
 ### Scene Description:
-Fosters holding a Chameleon_Cat plushy,three figures on height in background, middle figure is Middle-aged Fart
+Fosters holding a Chameleon_Cat plushy,three figures on height in background, middle figure is Middle-aged Fart (Old Fart)
 
 ### Middle-aged Fart (Old Fart)
 OY! Sand goblin.. You can't park there, mate!
-<chuckles>
- squirt?
+<two others chuckles>
+I'll just assume you understand and speak the same language as me, so what do they call you squirt?
 
-### Tampax - Spoken
-Squishton
+### Young Pampers - Spoken
+Piss-off kid! ...But my *name* is Harry.
 
 ---
 
-## Scene 18
+## Scene 18 - A welcoming, i guess.
 
 ### Scene Description:
 closeup of younger Old Fart holding out hand
 
-### Old Fart
-Hah. Welcome to the Gash, Squishton.
+### Middle-aged Fart
+Hah. Welcome to the Gash, Harvey!
+
+### Young Pampers - Spoken
+Harry...
+
+### Middle-aged Fart
+Larry!
+
+### Young Pampers - Spoken
+Harry.
+
+### Middle-aged Fart
+Carey.
+
+### Young Pampers - Spoken
+Harry!
+
+### Middle-aged Fart
+Gary!
+
+### Young Pampers - Spoken
+HARRY!
+
+### Middle-aged Fart
+Henry
+
+### Young Pampers - Spoken
+HARRY!
+
+### Middle-aged Fart
+Horace!
+
+### Young Pampers - Spoken
+H! A! R! R! R... uhm.. Y! HARRY!
+
+### Middle-aged Fart
+J, E, N, N, Y!
+
+
+<"Hey, *cough* I'm still alive in here.. If anyone has a stick *cough* or something, they could easily press the *cough* emergency release button on the outside. *cough*">
+
+<"Anyone? It's getting toasty in here...">
+
 
 ---
 
-## Scene 19
+## Scene 19 - Grave vibes
 
 ### Scene Description:
 monochrome,silhouette of three villagers/hunters,kid Tampax,Grave
 
-### Tampax - Narration
-As he put band-aids on my boo-boos, the old fart had gently explained that there was nothing he could do to save the other survivors, and I already knew there was no way I'd get back into the City.
+### Young Tampax - Narration
+As he put band-aids on my boo-boos, the Middle-aged fart had vaguely explained that there was nothing he could do to save the other survivors, and I knew there was no way I'd get back to the city.. I remember reading about the last rescue operation being celebrated for only taking *just* under 34 years 7 months and 23 days until the request was processed in the system and they successfully rescued 7 skeletons.
 
 ---
 
-## Scene 20
+## Scene 20 - Arriving "home"
 
 ### Scene Description:
-Old Fart holding hand of kid Tampax and two figures in background arriving at village,village scene and people in foreground
+Middle-aged Fart holding hand of young Pampers and two figures in background arriving at village,village scene and people in foreground
 
-### Tampax - Narration
-The tribe was sceptical at first, but in time, they started to treat me like a distant cousin.
+<mumble> <whisper>
+
+### Young Pampers - Narration 
+The others was sceptical at first, but in time, they started to treat me like a distant cousin.
 
 ---
 
-## Scene 21
+## Scene 21 - Growing up in the Gash
 
 ### Scene Description:
-Backside of Old Fart teaching younger Tampax to hunt,spear thrown at kangaroos in background
+Backside of Ageing Fart teaching older Tampax to hunt,spear thrown at kangaroos in background
 
-### Tampax - Narration
-Luckily, i quickly learned how to survive in the Wasteland they called The Gash..
+### Pampers - Narration
+I quickly learned how to scratch out a living in the Wasteland they called The Gash..
 
 ---
 
-## Scene 22
+## Scene 22 - It's a shitty job...
 
 ### Scene Description:
 nightscene,shadowy figures searxhing the dump,copter in background dumping more trash
 
 ### Tampax - Narration
-And digging for something they called "Attareeg Ayms" from the city dumps.
+And digging through the city's combined garbage and sewage dump for anything useful, and some mythical treasure the Old Fart had seen during one of his psychedelic benders, called "Elless-Ellfor".
+That's also where I found Soupey's PCB.
 
 ---
 
-## Scene 23
+## Scene 23 - New Talents
 
 ### Scene Description:
-Tampax completing Soupey,villagers and Old Fart in background,Old Fart holding and looking at something and getting a bright idea
+Tampax completing a soupcan robot shell for Soupey, villagers and Old Fart in background,Old Fart holding and looking at something and getting a bright idea
 
 ### Tampax - Narration
-As the years passed, I forgot my life in the city, and discovered new talents like whistling (bad whistling) and making sentient soupcans!
+As the years passed, I forgot my life in the city, and discovered new talents, like using a metal pipe, whistling <bad whistling>, and hot-gluing some stuff together to make a shell for Soupey.
 
 ### Old Fart
-hah
+Hah!
 
 ### Soupey
 I am.. ALIVE!
-Call me Soupey
+Greetings inferior meatbags, You may call me Soupey, or suffer the consequences.
 
 ---
 
-## Scene 24
+## Scene 24 - And a new name
 
 ### Scene Description:
-Old Fart holding a Fosters label and pointing like he's posing for a commercial
+Old Fart holding a Pampers label and pointing like he's posing for a cheesy commercial
 
 ### Tampax - Narration
-and i got a second name.
+And i was  a second name.
 
 ### Old Fart
-This random piece of trash with a word on it is what we'll call you now that you've come of age at your 34rd birthday.
-I found you, protected you, and made you more absorbant, so that makes you Squishton Tampax.
+This random piece of trash i just found is what we'll call you, now that you've come of age at your 34rd birthday.
+I found you, protected you, and tought you to be more absorbant, so that makes you Jerry Pampers.
 
----
-
-## Scene 25
-
-### Scene Description:
-Tampax in shadows pocketing Soupey's circuitboard,Wichser shaking up Old Fart in background
-
-### Wichser
-...don't even have the correct form!
-Now, give us the the guy who escaped us over 20 years ago, or we'll shoot everyone, starting with you, you... temu hippie!
-
-### Tampax - Narration
-The old fart had been right for once.. after making the same predictions every week since he found me.
-
----
-
-## Scene 26
-
-### Scene Description:
-backside of Tampax emerging towards Old Fart Wichser and henchman standing in background
-
-### Tampax - Narration
-Maybe this was my ticket out of this dump, and back to a bed and shower and toiletpaper... anyway, It was me they wanted.
+### Pampers
+Harry...
 
 ### Old Fart
-No my illegally adopted sand goblin, don't let the evil take you, run!
-
-### Henchman2
-RNG scan confirms it's him commander Wichser.
+Whatever...
 
 ---
 
-## Scene 27
+## Scene 25 - Oh yeah, the present
+
+### Scene Description:
+Tampax in shadows pocketing Soupey's circuitboard, Wichser shaking up Old Fart, and two guys carrying a big giftwrapped bomb labeled "NOT A BOMB" in the background
+
+### Wichser - Annoyed 
+...and you don't even have the correct form for anything!
+Now, give us the the guy who escaped us over 20 years ago, or we'll shoot everyone.. again, starting with you, you weirdly nameless old git..
+
+### Tampax - Narration
+The old fart had been right.. for once.. after making drugged out, hallucinatory predictions every week since he found me.
+
+---
+
+## Scene 26 - Here i am
+
+### Scene Description:
+backside of Tampax emerging towards Old Fart, Wichser and henchmen standing in background
+
+### Tampax - Narration
+Maybe this wasn't the smartest plan It was obviously me they wanted, but maybe I could...
+
+### Old Fart
+Noo.. You *can't* quicksave during a cutscene, don't let the evil take you, run away!
+
+### Henchman
+The RNG scan-o-meter confirminates that it's him commander Wichser.
+
+---
+
+## Scene 27 - Plan B, Get captured.
 
 ### Scene Description:
 closeup of Wichser with shitgrin
 
 ### Tampax - Narration
-Evil had come to the Gash, just as he said.
+Evil had come to the Gash allright, just as the old man predicted about 5-10 minutes ago..
 
 ### Wichser
-Seize him!
+Size him!
+<"*cough* Seize">
+oh.. right... SEIZE HIM!
 
 ---
 
-## Scene 28
+## Scene 28 - Take-Away
 
 ### Scene Description:
-Tampax following Wichser up copter landing,villagers looking helplessly on
+Tampax being led by Wichser up copter landing,villagers looking helplessly on
 
 ### Tampax - Narration
-But had the old fart actually seen why it wanted me? or was it just his drugged out subconscious revealing his fears?
+But had the old fart seen *why* it wanted me?
+And why did he predict this basically at the exact same time as it happened? and what *was* his name, anyway?
 
 ---
 
-## Scene 29
+## Scene 29 - Welcome to VillAir®, the Villains choice 
 
 ### Scene Description:
 copter flying towards front,campfire visible in background
 
 ### Tampax - Narration
-It was too late to ask him now.
+I guess it was too late to ask him now...
 
-### Henchman3
-Leaving the bomb explosion Zone Commander Wichser
+### Henchman
+We are now 69 Edmarks away and safely outside the Eradica-Tron' vaporisation Zone,  Commander Wichser
 
 ### Wichser
-Excellent... Explodinate the bomb!!
+Excellent... Explodinate!!
 
 ---
 
-## Scene 30
+## Scene 30 - Pop goes the village
 
 ### Scene Description:
-big explosion,small copter flying away
+BIG explosion, small copter flying away
 
 ### Tampax - Narration
 Now it *REALLY* was too late to ask him...
 
 ---
 
-## Scene 31
+## Scene 31 - What a jerk
 
 ### Scene Description:
-trokper holding back Tampax trying to attack Wichser who is looking back at them
+Henchman holding back Tampax, who is trying to attack Wichser, who in turn is looking back at him with an annoyed expression.
 
 ### Tampax - Spoken
 Why you knee-grating...
 
 ### Wichser
-Shut him up!
+Shut up when you threaten me!
 
 ---
 
-## Scene 32
+## Scene 32 - Wait Quest
 
 ### Scene Description:
-Closeup of Tampax with a black eye
+Closeup of Tampax with a swollen black eye and bloody/runny nose
 
 ### Tampax - Narration
-All I could do now was wait, just like the Old Fart taught me when the batteries to my gameboy had to recharge. 
-Wait and be ready...
+I was unable to discuss my objections to vaporising the village, and since there wasn't any tea or coffee, or even an in-flight magazine,  all I could do was wait.
+Waiting just like the Old Fart taught me, when the batteries to my gameboy had to recharge, 
+Wait, Stay focused and be ready...
 
 ---
 
-## Scene 33
+## Scene 33 - Being Vigilant 
 
 ### Scene Description:
 city view,copter flying
 
 ### Tampax - Narration
-It was bright when we reached the city. 
+*snoring*
+*abruptly waking up* Huh, wha.. where?
+*clear throat*
+The sun was already shining bright when we approached the city. 
 
 ### Wichser
 Land at the Security Quadrant Headquarters.
 
 ### Tampax - Narration
-A brightness My Tribe saw up close before being vaporised.
+A brightness the villagers saw up close and personal as they and everything around them was vaporised.
 
 ---
 
-## Scene 34
+## Scene 34 - the roosterhole
 
 ### Scene Description:
-left side: looking straight on into cockpit,henchman piloting,Tampax in middle background and Wichser reading a book,right side: same view,worried looks,book flyes,shaken up
+Double panel:
+
+First panel: looking straight into cockpit windows from outside, Wichser to the left, a pilot to the right, and Tampax on the floor behind them in middle, Wichser reading a book (Villany for dummies!)
+
+Second panel: same as the first panel, but everyone has a worried look on their face, book and other stuff flying around, shaking.
 
 ### Tampax - Narration
-They were nothing more than a neatly checked checkbox on Wichsers form now..
+Now the Old Fart and the others were reduced to nothing more than a neatly filled checkbox on one of Wichsers many forms.
 
-### Henchman4
-Affirmative commander Wichser, turning on the BOEING landing system now.
+### Henchman
+Affirmative commander whiskers.. err Commander Wichser. 
+Approaching Security Quadrant Headquarters now, actimavating the BOEING descent system now.
 
 ### Tampax - Narration
-But what was I... Why did... Wait, what did he say that landing system was called...(interrupted)
+But what was I supposed to... Why did they... 
+Wait, what did he say that landing system was called...(interrupted)
 
-### Wichser
+### Wichser - shocked
 BOEING??
 
 ### Henchman4 
-That was an ancient manufacturer of something called  air planes commander Wichser,[*] but i didn't think that was important right now because the BOEING landing system... it's taking over!
+An ancient manufacturer of something called air planes commander Wichser,[*] but that's not important right now, the BOEING descent system... it's taken over all controls!
 
 [*] Wichser: "what's an air plane?" Henchman: an air plane is a tool for planing air"  and so on and so on, (can be a fun place to add cameos or something?)
 ---
@@ -478,19 +541,23 @@ Copter plummeting down towards city, camera zooms veeery slowly in
 
 ### Pilot - low, calm, half mumbling, mic close to mouth / audio clipping [I'll adapt the audio volume so it is about the same volume as othwr voices)
 <crackle>
-This is the captain speaking, as you can see out your windows, it's a lovely day, the temperature is a crisp...
+This is the captain speaking, as you can see out your windows if you tilt your heads, it's a lovely day, smoggy, with only the occasional acid drizzle.
+We will soon be landing... somewhere on the ground, the outside temperature is a crisp 14 degrees Celsius, or 57 Fahrenheit, or 287 point 2 Kelvin, or 420 point 69 Varmeme units...
 
-(Sudden stop with freezeframe, hammy voice over saying something like: "Is this the end of Squishton Tampax? Will Soupey ever get his programmed wish to take over the world? To find out, tune in... ...RIGHT NOW!", continues playing from Freezeframe)
+(Sudden stop with freezeframe, hammy voice over saying something like: 
+"Is this the end of Harry Pampers? Will Soupey ever fulfil his hard-coded wish to take over the world? To find out, tune in... ...RIGHT NOW!
+...continues playing from Freezeframe)
 
-...point 47 on the Keith scale.
-We will be landing shortly and *might* experience some *minor* turbulence so please return to your seats, fold up that flimsy little tray, fasten your seatbelts and pray to whatever deity you believe in, and those you don't believe in.
-Thank you for flying with Villair, the Villains choice
+...or 1337 point 47 on the Keith scale.
+
+we *might* experience some *minor* turbulence so please return to your seats, fold up that flimsy little tray, fasten your seatbelts and pray to whatever deity you believe in, and those you don't believe in.
+Smoke'em if you got them, and thank you for choosing to fly with VillAir®, the Villains choice.
 
 ### Tampax - Narration
-*seatbelt click sound* 
+<seatbelt click sound>
 Maybe I'd get some answers now..
 [Cut to black and silence]
-[That is... as long as i don't get stuck in some fair and balanced retrospective...]
+[That is... as long as i don't get stuck in Customs.. or worse, some kind of fair and balanced retrospective...]
 <Crashing copter sound>
 
 
@@ -499,15 +566,15 @@ To save on having to do extra recordings later
 
 ## Wichser
 
-### Lines: 
+### Lines & Reactions:
 ● (angry snap) What was that?
-
-### Reactions:
-● NOW!
+● (Annoyed) NOW!
+● Who said that? Show yourself so i can have you shot!
 
 ## EXTRA SINGLE LINES/SOUNDS FOR ANYONE TO RECREATE OR REINTERPRET, HAVE FUN.
 
 ### Lines:
+
 ● 
 
 ### Sounds:
